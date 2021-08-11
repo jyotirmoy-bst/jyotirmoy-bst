@@ -2,10 +2,6 @@
 
 ![](https://visitor-badge.laobi.icu/badge?page_id=jyotirmoy-bst.profile)
 
-I'm not so very talented,\
-But I make it up with my hardwork.\
-Hope you find something useful.
-
 ## For queries:
 Contact: <a href="mailto:jyotirmoy.barman@bluestacks.com">jyotirmoy.barman@bluestacks.com</a>
 
